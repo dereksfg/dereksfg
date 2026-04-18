@@ -1,4 +1,4 @@
-## Hi, My name is Derek Silva Frug
+## Hi, My name is Derek Frug
 
 My name is Derek Frug, i'am from brazil. I'am 18 years old and i am currently majoring Information Systems in FIAP 
 
